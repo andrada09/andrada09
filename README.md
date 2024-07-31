@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @andrada09
-- 👀 I’m stakeholder in cars
+- 👀 I’m interested in cars
 - 🌱 I’m currently learning technology
 - 💞️ I’m looking to collaborate on take the course
 - 😄 Pronouns: she/her
